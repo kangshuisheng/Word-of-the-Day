@@ -1,0 +1,30 @@
+palm 手掌,手心,
+Catholic 天主教的,天主教徒
+disturb 打扰,妨碍
+hostess 女主人,女房东
+wealthy 富有的,富裕的
+accept 接收,认可,同意
+clap 鼓掌,拍手
+entitle 授权,命名
+coil 盘绕,卷成圈,卷,盘卷之物
+offense 罪行,冒犯
+secondary 第二的,中等的,次要的
+sophisticated 老于世故的,老练的
+confidence 信心,信任,秘密,私事
+align 使成一行,调准,使结盟
+exteranl 外部的,外界的
+romantic 浪漫的
+leadership 领导能力,领导地位
+soda 苏大,苏打水
+cast 投掷,投射,铸造,选派 [名]演员班子
+marxist 马克思主义的,马克思主义者
+decay 腐烂,衰退
+clay 粘土,黏土
+plastic 塑料,可塑的,不自然的
+elastic 有弹性的,灵活的
+frame 结构,骨架,身躯, [动] 把...框起来 陷害
+during 在...期间
+reality 现实,事实
+bet 打赌,赌注,
+inward 内向的,在内的,内心的
+realistic 现实的,现实主义的
